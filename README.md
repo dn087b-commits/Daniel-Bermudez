@@ -2,7 +2,7 @@
 **Desarrollador de Software Junior / Aprendiz SENA**
 
 📍 Medellín, Antioquia, Colombia | 📱 [3005583107](tel:+573005583107) | ✉️ [dn087b@gmail.com](mailto:dn087b@gmail.com)  
-🌐 [LinkedIn](https://linkedin.com/in/[COMPLETAR]) | 🐙 [GitHub](https://github.com/dn087b-commits)
+ | 🐙 [GitHub](https://github.com/dn087b-commits)
 
 ---
 
